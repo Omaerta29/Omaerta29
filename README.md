@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Omaerta29
+- 👀 I’m interested in  Game Design
+- 🌱 I’m currently learning Godot
+- 💞️ I’m looking to collaborate on Games
+- 📫 How to reach me: Discord @Omaerta29
+- 😄 Pronouns: He/Him
